@@ -4,4 +4,5 @@
 
 ![image](https://github.com/REVOUTION1/dem-eksamen/assets/112682423/e7e0c529-5ef6-465f-8217-89ed2fd34a8e)
 
-![Uploading image.png…]()
+![image](https://github.com/REVOUTION1/dem-eksamen/assets/112682423/e28ed0b2-f271-44b3-9af2-0bd02c279223)
+
